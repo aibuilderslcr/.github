@@ -10,4 +10,4 @@ We run coworking days, demo nights, lunch & learns and socials.
 
 ## Get in touch
 
-If you'd like to get in touch, reach out to hello@aibuilderslcr.uk
+If you'd like to get in touch, reach out to hello@aibuilderslcr.co.uk
